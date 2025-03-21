@@ -18,3 +18,9 @@ and help spread the message of the duck cult.
 - [Mnem](../users/mnem.md) (0.1x dev)
 - [Chris](../users/chris.md) (Member)
 - [Nameunknown](../users/nameunknown.md) (Duck slave)
+- Duck Cult Alchemist
+- Ze.duck | duck cult
+- Duck Cult Emergency Pancake
+- Kenny | Duck Cult's Femboy
+- Josh | Duck Cult Lieutenant
+- P3RPL3X | Lil Dingus Duck
